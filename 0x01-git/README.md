@@ -1,1 +1,1 @@
-my second readme
+LIFE IS WHAT YOU MAKE OF IT
